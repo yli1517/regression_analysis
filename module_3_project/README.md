@@ -1,4 +1,4 @@
-# Mod 1 Project: Do women-led and minority led entrepreneurs need more support?
+# Mod 3 Project: Do women-led and minority led entrepreneurs need more support?
 
 ## Members:
 
